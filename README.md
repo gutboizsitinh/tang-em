@@ -1,5 +1,5 @@
-### [Hướng dẫn tạo website tán đổ crush đơn giản và hiệu quả || Part 2](https://youtu.be/e2KYBhCx-uU)
-> Các bạn download source về và làm theo hướng dẫn trong video nhé.
+### Tôi yêu người ấy bằng thứ tình cảm chân thành nhất
+### chỉ cần người đó không buông tay thì dù trái đất này có ngừng quay tôi cũng không bao giờ buông tay người ấy
 
 
 ![cover picture](/img/totinh2021-part2.jpg)
